@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hasfak7
 - 👀 I’m interested in software developer 
-- 🌱 I’m currently learning Higher national diploma in information technology
+- 🌱 I’m currently learning Higher National Diploma in Information Communication Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me hmhasfak@gmail.com
 - 😄 Pronouns: ...
